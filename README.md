@@ -1,0 +1,1 @@
+jishusozo2gameに移行
